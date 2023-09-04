@@ -4,9 +4,15 @@
 
 - [洛芙联苯苄唑脚气喷剂](https://item.yiyaojd.com/100053779664.html)
 
+## 办公用品
+
+### 纸张
+
+- [金光（APP）金旗舰（GOLD FLAGSHIP）A4/70g](https://item.m.jd.com/product/100010797333.html)
+
 ## 硬盘盒
 
-- [佳翼（JEYI）i9-藏线款｜BMK（NVMe/SATA 双协议）]( https://u.jd.com/tbN6UeF)
+- [佳翼（JEYI）i9-藏线款｜BMK（NVMe/SATA 双协议）](https://item.m.jd.com/product/100007999483.html)
 
 
 ## 黑苹果
