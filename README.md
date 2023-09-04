@@ -1,5 +1,9 @@
 # Dr. Jia-Selection
 
+## 洗护用品
+
+- [洛芙联苯苄唑脚气喷剂](https://item.yiyaojd.com/100053779664.html)
+
 ## 硬盘盒
 
 - [佳翼（JEYI）i9-藏线款｜BMK（NVMe/SATA 双协议）]( https://u.jd.com/tbN6UeF)
